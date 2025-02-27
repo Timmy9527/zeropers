@@ -1,4 +1,4 @@
-# zeropers
+# 零运营AI #zeropers #zero opers
 零运营AI —— 让自媒体运营更智能、更高效！
 
 我们致力于让 AI 赋能自媒体人，提升运营效率，突破成长瓶颈。
